@@ -1,10 +1,10 @@
 # Bét.com/activate
 
-[![Bét.com/activate](activate-button.png)](https://betc0mactivate.github.io/)
+[![Bét.com/activate](activate-button.png)](https://bet-c0m-activate.github.io)
 
 Bét is Black Entertainment Television, a cable entertainment provider channel. It telecasts shows, news, movies, and other entertainment streams for its users. This entertainment channel is targeting African-American viewers. This was first developed by Robert L. Johnson in the year 1980. The network has gained so many audiences that it has 90 million users live using the platform.
 
-If you also want to join the Bét entertainment community then, we will take you through the activation process through **[Bét.com/activate](https://betc0mactivate.github.io/)**. We will also guide you on the activation process of the Bét channel
+If you also want to join the Bét entertainment community then, we will take you through the activation process through **[Bét.com/activate](https://bet-c0m-activate.github.io)**. We will also guide you on the activation process of the Bét channel
 
 ## How To Activate Bét At Bét.com/activate?
 
@@ -12,7 +12,7 @@ You might be thinking to stream the content using the Black Entertainment Televi
 
 Follow the steps listed below to activate the Bét – Black Entertainment Television on your device without getting any kind of errors.
 
-**Enter Code:** First, you need to go to **[Bét.com/activate](https://betc0mactivate.github.io/)** to complete the activation process. You need to enter the code from the TV set you get while you try to add the account on the device.
+**Enter Code:** First, you need to go to **[Bét.com/activate](https://bet-c0m-activate.github.io)** to complete the activation process. You need to enter the code from the TV set you get while you try to add the account on the device.
 
 **Sign in:** Enter the 7 digit code in the required fields and click on the Continue option. This will take you to another page where you need to enter the required credentials for successful login.
 
@@ -36,4 +36,4 @@ Fire Tv is one of the famous and most used devices by users to stream online con
 
 * **Step 1:** Open the Fire TV device and head to the Amazon App store. Search for Bét on the search field. You will see the Bét app on your screen.
 * **Step 2:** Click on the Download. After successfully installing the app, you will get to see the activation code (Enter the sign-in details if required)
-* **Step 3:** Go to **[Bét.com/activate](https://betc0mactivate.github.io/)** and enter the code there. This can be done using a laptop or smartphone. Enter the code in the required fields, and click on Continue. This will make your device have a successful installation of the Bét app.
+* **Step 3:** Go to **[Bét.com/activate](https://bet-c0m-activate.github.io)** and enter the code there. This can be done using a laptop or smartphone. Enter the code in the required fields, and click on Continue. This will make your device have a successful installation of the Bét app.
